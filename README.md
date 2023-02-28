@@ -32,3 +32,4 @@ Courtesy of [Vikas Rai](https://github.com/raiv200)
 
 
 Pegasus Ryu Sei Ken!
+Diamond Dust!
